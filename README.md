@@ -1,6 +1,6 @@
 GOVERNMENT NETWORK FILES LOL! CONTROLLED BY THE FBI & CIA
 
-``🚫ACCESS DENIED🚫
+``🚫 ACCESS DENIED 🚫
 ⚠️ STOP SNOOPING AROUND ⚠️ GO FUCK YOURSELF🖕``
 
 **The unauthorized reproduction or distribution of this copyrighted work is illegal. Criminal copyright infringement is investigated by federal law enforcement agencies and is punishable by up to 5 years in prison and a fine of $250,000
